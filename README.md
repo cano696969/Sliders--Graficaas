@@ -27,4 +27,8 @@
 
 
 
+![efe](https://github.com/cano696969/Sliders--Graficaas/assets/158393938/ced07cd9-0c47-4d85-b4ad-bebe317c42ad)
+
+
+
 
