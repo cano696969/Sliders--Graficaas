@@ -20,6 +20,12 @@
 ![vffvf](https://github.com/cano696969/Sliders--Graficaas/assets/158393938/e4719886-aa7f-4b48-af19-0d626e97c445)
 
 
+![CIRCULO](https://github.com/cano696969/Sliders--Graficaas/assets/158393938/9f7296ea-376c-4a53-ba65-4ad48651708f)
+
+
+
+
+
 ![undiss](https://github.com/cano696969/Sliders--Graficaas/assets/158393938/912f0f88-fbf2-4438-83e6-13efa1f5f62a)
 
 
